@@ -1,1 +1,2 @@
-# resimli-giri-k-
+sorun olursa  gelin
+https://discord.gg/wK4dnEcFJF 
